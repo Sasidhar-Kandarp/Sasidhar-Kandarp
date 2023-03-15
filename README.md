@@ -1,5 +1,5 @@
 ### Hi there 👋
-### Door is on your left, Please mind the gap!!
+### Door's on your left, mind the gap!!
 
 
 <!--
